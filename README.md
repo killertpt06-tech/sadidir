@@ -1,3 +1,2 @@
-# sadidir oo
+# sadidir
 просто описание
-oisdghlksaglksadkgasdfk
